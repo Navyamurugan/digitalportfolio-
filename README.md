@@ -1,2 +1,0 @@
-# digitalportfolio-
-digital portfolio description 
